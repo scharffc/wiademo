@@ -1,11 +1,34 @@
 # wiademo
 
-This GitHub account was used for a demo with highschool girls in Senegal for a program with [WIA](https://wia-initiative.com) (Women in Africa) 
-# Section 1
 
-[mJangale](https://mjangale.com)
+Sokhna25
+Kydie02
+Dieynaba06
+MariemeSamb
+SeynabouBoye
+Fatou023
+Hawasahh
+ndeyeyacinedieng
+aissatou07
+Mounassss
+M3rcr3di
+dabandiaye
+Mafaa12
+mariemossane
+nmariemed
+rosalie56
+Astrabdt
+diodiofal
+rockyatou
+amaci0017
+Otakuforever10
+Marieetou
+awadiop06
+Hannamarième
+Oumoukd
+Nguissalyy
+Coura610
+germainedioh
+seybatoudieye07
+mamediarraFALL
 
-# Section 2
-
-* Point 1
-* Point 2
