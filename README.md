@@ -1,4 +1,4 @@
-# wiademo
+# WIA Coding Program 2022-2023
 
 Pseudos des élèves
 
